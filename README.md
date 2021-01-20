@@ -1,16 +1,24 @@
 # What secrets do the 10 Colosseums of Rome hold outside of Italy
 
+![Branching](4hg8osml.jpg)
+
 Rome today is the capital of Itali, but in former times it was a real empire that stretched from Europe to Africa. The main and impressive feature of Rome of those times was its ability to bring in its own cultural traits, conquering peoples and imposing its own culture. At the heart of all this, of course, were the Colosseums, the pompous and majestic structures that remain to this day in France, Britain, and other cities. What are they, the Colosseums, and what is known about them?
 
 ## The Arena in Nîmes, France
+
+![Branching](4hg8osml1.jpg)
 
 The Colosseum, which is located in this city in the south of France, is considered one of the best preserved today. Its construction is believed to have begun in A.D. 90, literally right after an identical Colosseum was built in Rome. This can also be seen in the general stylistics of the structure, which clearly copies its Roman counterpart.
 
 At the beginning of the expansion of Gaul by the Romans, all the cities that were located on the coast of France became quite large administrative centers. Octavian Augustus set up special privileges for Nîmes, as a result of which the city grew rapidly. Because of this, by the middle of the first century A.D. the city's development reached such heights that it was decided to build the Pont du Gare aqueduct, which directed water to all buildings and structures.
 
+![Branching](4hg8osml2.jpg)
+
 During its period of popularity, the Colosseum in the city, like its other brethren, hosted gladiators on its expanse. After the Roman Empire began to fade, the Colosseum became a defensive structure, a kind of fortress to defend itself against barbarians. By the time it fell to the Franks in about 750 AD, it already had quite an extensive history. The Colosseum was restored in the 1700s and began to be used for bullfighting in the 19th century. Now the arena in Nîmes is a place for tourists, as well as a venue for concerts.
 
 ## Amphitheater in Arles, France
+
+![Branching](4hg8osml3.jpg)
 
 Near the city of Nîmes is another settlement called Arles, which also boasts a Roman part of its history. Despite the uniqueness and monumentality of the local Colosseum, it is not as well preserved as its counterpart in Nîmes. However, interestingly enough, the Colosseum in Arles is listed as a UNESCO World Heritage Site, while the arena in Nîmes is not.
 
